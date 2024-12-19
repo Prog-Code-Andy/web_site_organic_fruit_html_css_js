@@ -1,2 +1,2 @@
-### Hi my name Andrii 
-Web site project Organic Fruit
+
+🤖 Web site project Organic Fruit 🙂
